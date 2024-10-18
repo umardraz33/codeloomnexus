@@ -1,5 +1,6 @@
 
-[Uploading screencapture-codeloomnexus-2024-10-17-23_38_51.pdf…]()
+![Uploading screencapture-codeloomnexus-2024-10-17-23_38_51.png…]()
+
 
 **We Propel Brands and Businesses into the Digital Future!**
 
